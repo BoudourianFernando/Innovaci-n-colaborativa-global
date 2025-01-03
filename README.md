@@ -1,1 +1,2 @@
-# Innovaci-n-colaborativa-global
+# Innovación-colaborativa-global
+Las alianzas estratégicas internacionales transforman industrias al fomentar la colaboración y el intercambio de recursos. En sectores como la tecnología y la automoción, permiten a las empresas superar desafíos complejos, potenciar la innovación y acceder a nuevos mercados. La clave está en compartir riesgos y beneficios, generando ventajas competitivas en un entorno globalizado.
